@@ -2,14 +2,15 @@
   <img src="https://visitor-badge.laobi.icu/badge?page_id=A7Xloser.A7Xloser&left_color=black&right_color=black&left_text=A7Xlings"  />
 </div>
 <div align="center">
-<img width="582" height="567" alt="Untitled65_20251017230158" src="https://github.com/user-attachments/assets/d3b79f4d-043b-4e91-8f4d-81455a7dd8ac" />
+<img width="800" height="567" alt="Untitled65_20251017230158" src="https://github.com/user-attachments/assets/d3b79f4d-043b-4e91-8f4d-81455a7dd8ac" />
 
- <h6 align="center">.  ━━━━━━━━∙⋆🤍⋆∙━━━━━━━━  .
-  <h6 align="center">Interactions are encouraged!
-<h6 align="center">Me an Twin = Synyster Gates and Zacky Vengeance<br>.<br> * AVENGED SEVENFOLD FANS PLEASE INT NO MATTER WHAT PLEASE PLEASEEEE<br>
+ 
+<h6 align="center">𝘐𝘯𝘵𝘦𝘳𝘢𝘤𝘵𝘪𝘰𝘯𝘴 𝘢𝘳𝘦 𝘩𝘦𝘢𝘷𝘪𝘭𝘺 𝘦𝘯𝘤𝘰𝘶𝘳𝘢𝘨𝘦𝘥, 𝘐𝘮 𝘷𝘦𝘳𝘺 𝘵𝘢𝘭𝘬𝘢𝘵𝘪𝘷𝘦 𝘢𝘯𝘥 𝘨𝘰 𝘰𝘯 𝘢 𝘭𝘰𝘵 𝘢𝘣𝘰𝘶𝘵 𝘮𝘺 𝘪𝘯𝘵𝘦𝘳𝘦𝘴𝘵𝘴. ! (𝘦𝘴𝘱𝘦𝘤𝘪𝘢𝘭𝘭𝘺 𝘪𝘯𝘵 𝘧𝘰𝘳 𝘈𝘷𝘦𝘯𝘨𝘦𝘥 𝘴𝘦𝘷𝘦𝘯𝘧𝘰𝘭𝘥 𝘭𝘪𝘴𝘵𝘦𝘯𝘦𝘳𝘴).<br> 𝘡𝘢𝘤𝘬𝘺 𝘝𝘦𝘯𝘨𝘦𝘢𝘯𝘤𝘦 + 𝘚𝘺𝘯𝘺𝘴𝘵𝘦𝘳 𝘎𝘢𝘵𝘦𝘴 𝘒𝘪𝘯𝘯𝘪𝘦 𝘧𝘰 𝘴𝘩𝘰.- 𝘚𝘪𝘨𝘯 𝘢𝘵𝘢 𝘯𝘦𝘢𝘳 𝘭𝘪𝘯𝘬𝘴 ^ <br><br>𝘚𝘰𝘮𝘦 𝘵𝘩𝘪𝘯𝘨𝘴 𝘢𝘳𝘦 𝘴𝘵𝘪𝘭𝘭 𝘣𝘦𝘪𝘯𝘨 𝘸𝘰𝘳𝘬𝘦𝘥 𝘰𝘯 - 𝘚𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦(𝘞𝘩𝘪𝘤𝘩 𝘪𝘮 𝘤𝘶𝘳𝘳𝘦𝘯𝘵𝘭𝘺 𝘥𝘰𝘪𝘯𝘨) + 𝘗𝘳𝘰𝘯𝘰𝘶𝘯𝘴 𝘱𝘢𝘨𝘦<br><br>𝐂𝐮𝐫𝐫𝐞𝐧𝐭 𝐢𝐧𝐭𝐞𝐫𝐞𝐬𝐭𝐬:<br>𝘞𝘞𝘌, 𝘙𝘋𝘙2, 𝘙𝘋𝘙1, 𝘊𝘰𝘋 𝘔𝘞𝘐𝘐+𝘐𝘐𝘐, 𝘊𝘰𝘋𝘐𝘐 𝘻𝘰𝘮𝘣𝘪𝘦𝘴, 𝘈7𝘟(𝘈𝘷𝘦𝘯𝘨𝘦𝘥 𝘚𝘦𝘷𝘦𝘯𝘧𝘰𝘭𝘥 - 𝘍𝘢𝘷𝘰𝘶𝘳𝘪𝘵𝘦 𝘣𝘢𝘯𝘥, 𝘢𝘭𝘰𝘯𝘨𝘴𝘪𝘥𝘦 𝘒𝘪𝘥 𝘙𝘰𝘤𝘬.)<br>𝐇𝐞𝐚𝐯𝐲 𝐊𝐢𝐧𝐧𝐢𝐞𝐬:<br>𝘗𝘦𝘯𝘵𝘢, 𝘙𝘝𝘋 (𝘙𝘰𝘣 𝘝𝘢𝘯 𝘋𝘢𝘮), 𝘚𝘺𝘯𝘺𝘴𝘵𝘦𝘳 𝘎𝘢𝘵𝘦𝘴, 𝘡𝘢𝘤𝘬𝘺 𝘝𝘦𝘯𝘨𝘦𝘢𝘯𝘤𝘦 (𝘉𝘺 𝘩𝘶𝘮𝘰𝘶𝘳), 𝘧𝘰𝘳 𝘴𝘰𝘮𝘦 𝘳𝘦𝘢𝘴𝘰𝘯... 𝘵𝘩𝘦 𝘴𝘰𝘯𝘨 𝘉𝘢𝘵 𝘊𝘰𝘶𝘯𝘵𝘳𝘺.</h6>
 
 
-<h6 align="center">"And a word to the wise, when the fire dies<br>You think it's over but it's just begun<br>Baby, don't cry<br>You had my heart, at least for the most part<br>'Cause everybody's gotta die sometime.<br>We fell apart, let's make a new start<br>'Cause everybody's gotta die sometime,<br> yeah, yeah, But baby, don't cry".<br><br>.  ━━━━━━━━━∙⋆𖹭⋆∙━━━━━━━━━  .</h5>
+<div align="center">
+ 
+</div>
 
 
 
@@ -24,8 +25,8 @@
 ![blinkiesCafe-ei](https://github.com/user-attachments/assets/f968ead8-4242-4885-aa11-6d01d5ec3bb0)![dh40u2u-2f9b3438-efcd-4b86-941d-b7943057b8f4](https://github.com/user-attachments/assets/59ac0dd3-7f8c-42a8-93ab-b686634750d6)
 
 
-
-
+<img height="200" src="https://25.media.tumblr.com/503f0ff27f3fbebc1c386e8656480867/tumblr_mgvq7oLWBr1qgn2a0o1_500.gif" >
+<h6 align="center">𝙈𝙚 𝙖𝙣𝙙 𝙏𝙬𝙞𝙣 (𝙕3𝙋𝙃𝘾𝙔𝙍) ^</h6>
 
 
 
