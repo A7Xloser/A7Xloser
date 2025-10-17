@@ -5,8 +5,10 @@
 
 <h6 align="left">Rosalyn ,, Rosa</h6>
 
+<div align="center">
+<img width="582" height="567" alt="edited-photo (4) (1)" src="https://github.com/user-attachments/assets/a962fa39-829f-4eda-9acb-522bdead95a4" />
 
-<h6 align="center">Me an Twin = Synyster Gates and Zacky Vengeance<br><br>Int unless im with friends.<br> * AVENGED SEVENFOLD FANS PLEASE INT NO MATTER WHAT PLEASE PLEASEEEE</h5>
+<h6 align="center">Me an Twin = Synyster Gates and Zacky Vengeance<br>.<br> * AVENGED SEVENFOLD FANS PLEASE INT NO MATTER WHAT PLEASE PLEASEEEE</h5>
 
 <div align="center">
  <img width="591" height="223" alt="edited-photo__3_-removebg-preview" src="https://github.com/user-attachments/assets/53069886-32a9-4d83-bcfd-91ad79aae867" />
