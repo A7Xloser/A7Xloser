@@ -2,7 +2,8 @@
   <img src="https://visitor-badge.laobi.icu/badge?page_id=A7Xloser.A7Xloser&left_color=black&right_color=black&left_text=A7Xlings"  />
 </div>
 <div align="center">
-<img width="582" height="567" alt="edited-photo (4) (1)" src="https://github.com/user-attachments/assets/a962fa39-829f-4eda-9acb-522bdead95a4" />
+<img width="582" height="567" alt="Untitled65_20251017230158" src="https://github.com/user-attachments/assets/d3b79f4d-043b-4e91-8f4d-81455a7dd8ac" />
+
  <h6 align="center">.  ━━━━━━━━∙⋆🤍⋆∙━━━━━━━━  .
   <h6 align="center">Interactions are encouraged!
 <h6 align="center">Me an Twin = Synyster Gates and Zacky Vengeance<br>.<br> * AVENGED SEVENFOLD FANS PLEASE INT NO MATTER WHAT PLEASE PLEASEEEE<br>
