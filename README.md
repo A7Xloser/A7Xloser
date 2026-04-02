@@ -2,8 +2,8 @@
   <img src="https://visitor-badge.laobi.icu/badge?page_id=A7Xloser.A7Xloser&left_color=black&right_color=black&left_text=*_A7Xlings"  />
 </div>
 <div align="center">
-<img width="800" height="650" alt="Untitled65_20251017230158" src="https://github.com/user-attachments/assets/d3b79f4d-043b-4e91-8f4d-81455a7dd8ac" />
-
+<img width="800" height="650" alt="Untitled169_20260402195717" src="https://github.com/user-attachments/assets/87998f16-e0d0-48b6-b5ac-47be22a3b23f" />
+<h6 align="center">𝙈𝙚 𝙖𝙣𝙙 𝙏𝙬𝙞𝙣 (𝙕3𝙋𝙃𝘾𝙔𝙍) ^</h6>
  
 
 
@@ -25,7 +25,7 @@
 
 
 <img height="200" src="https://25.media.tumblr.com/503f0ff27f3fbebc1c386e8656480867/tumblr_mgvq7oLWBr1qgn2a0o1_500.gif" >
-<h6 align="center">𝙈𝙚 𝙖𝙣𝙙 𝙏𝙬𝙞𝙣 (𝙕3𝙋𝙃𝘾𝙔𝙍) ^</h6>
+
 
 
 
