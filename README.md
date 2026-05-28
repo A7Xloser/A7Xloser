@@ -1,7 +1,6 @@
 
 <div align="left">
-  <img src="https://visitor-badge.laobi.icu/badge?page_id=A7Xloser.A7Xloser&left_color=black&right_color=black&left_text=DeathBats
-!" />
+  <img src="https://visitor-badge.laobi.icu/badge?page_id=A7Xloser.A7Xloser&left_color=black&right_color=black&left_text=DeathBats!" />
 
 </div>
 <div align="center">
