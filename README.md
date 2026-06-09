@@ -2,23 +2,14 @@
   <img src="https://visitor-badge.laobi.icu/badge?page_id=A7Xloser.A7Xloser&left_color=black&right_color=black&left_text=DeathBats%20%5E_%5E%20:"  />
 </div>
 
-<div align="left">
 <p align="left"></p>
 
 ###
 
 <br clear="both">
 
-<img align="left" height="250" src="https://i.pinimg.com/originals/ed/b7/84/edb78473ef8680a7447fd5103e1a7c15.gif"  />
+<img align="left" height="350" src="https://i.pinimg.com/736x/f7/c8/20/f7c820381b2843c0666d81d1090a7429.jpg"  />
 
-###
 
-<h5 align="right">"Well some search, never finding a way. Before long, they waste away. I found you, something told me to stay. I gave in, to selfish ways. And how I miss someone to hold. When hope begins to fade."<br><br>- 𝙳𝙴𝙰𝚁 𝙶𝙾𝙳</h5>
-
-###
-
-<h5 align="right">Sometimes sitting with friends, feel free to sit with me unless standards in name (e.g. DNI, DNIUF, etc.) but that is rare! ^_^</h5>
-
-###
- 
-
+<p align="center">"If you sing my song. And the dead rise all around me. I can make the darkness<br>weep and fall. If you sing my song Lie upon me, all surround me.<br>Ragged roads of distance Long lost souls.<br>If you sing my song. And the dead cry all around me. I'll blanket you with wings.<br>When you're not strong. Creature calls. Sick angels fall around me.<br>If you're scared<br>Beware"<br>-𝗕𝗲𝘄𝗮𝗿𝗲 𝗯𝘆 𝗠𝗶𝗰𝗵𝗮𝗹𝗲 𝗚𝗿𝗮𝘃𝗲𝘀-<br>
+<br>[atabook](https://rosaalaa4.atabook.org/) [straw](https://iirosazlyniv.straw.page/) [carrd](https://rosazlyn.carrd.co/)<br>
