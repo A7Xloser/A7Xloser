@@ -12,4 +12,4 @@
 
 
 <p align="center">"If you sing my song. And the dead rise all around me. I can make the darkness<br>weep and fall. If you sing my song Lie upon me, all surround me.<br>Ragged roads of distance Long lost souls.<br>If you sing my song. And the dead cry all around me. I'll blanket you with wings.<br>When you're not strong. Creature calls. Sick angels fall around me.<br>If you're scared<br>Beware"<br>-𝗕𝗲𝘄𝗮𝗿𝗲 𝗯𝘆 𝗠𝗶𝗰𝗵𝗮𝗹𝗲 𝗚𝗿𝗮𝘃𝗲𝘀-<br>
-<br>[atabook](https://rosaalaa4.atabook.org/) [straw](https://iirosazlyniv.straw.page/) [carrd](https://rosazlyn.carrd.co/)<br>
+
