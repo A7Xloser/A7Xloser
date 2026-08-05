@@ -12,7 +12,7 @@
 ###
 
 <p align="center">$\color{#4e4e4e}{{CURRENTLY}}$ $\color{#4e4e4e}{{REWORKING}}$ $\color{#4e4e4e}{{EVERYTHING!}}$<p>
-<p align="center">$\color{#4e4e4e}{{(straw + carrd}}$ $\color{#4e4e4e}{{to}}$ $\color{#4e4e4e}{{be}}$ $\color{#4e4e4e}{{exact)}}$
+<p align="center">$\color{#4e4e4e}{{(carrd}}$ $\color{#4e4e4e}{{to}}$ $\color{#4e4e4e}{{be}}$ $\color{#4e4e4e}{{exact)}}$
 
 
 <p align="center">$\color{#4e4e4e}{\text{♡ 。}}$
