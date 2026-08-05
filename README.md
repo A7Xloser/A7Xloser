@@ -6,7 +6,7 @@
   <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bungee&pause=1000&color=FFFFFF34&width=500&lines=Welcome+to+DeathBats+Club..." alt="Typing SVG" /></a>
 <br clear="both">
 
-<img align="left" height="350" alt="output-onlinegiftools (1)" src="https://github.com/user-attachments/assets/8a7d8ff7-5e9a-4e17-a8b9-dce320fe1b86" />
+<img align="left" height="300" alt="output-onlinegiftools (1)" src="https://github.com/user-attachments/assets/8a7d8ff7-5e9a-4e17-a8b9-dce320fe1b86" />
 
 
 ###
@@ -19,7 +19,7 @@
 
 ###
 
-<p align="right">
+<p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31wgaxpjvdt2hd5vqkapsle3q43m&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=616161&bar_color_cover=false&mode=dark">
   </a>
