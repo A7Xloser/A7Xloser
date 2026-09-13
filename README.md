@@ -1,27 +1,17 @@
 
 
-<div align="left">
-  <img src="https://visitor-badge.laobi.icu/badge?page_id=A7Xloser.A7Xloser&left_color=black&right_color=black&left_text=DeathBats%20%5E_%5E%20:"  />
-
-  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bungee&pause=1000&color=FFFFFF34&width=500&lines=Welcome+to+DeathBats+Club..." alt="Typing SVG" /></a>
-<br clear="both">
-
-<img align="left" height="300" alt="output-onlinegiftools (1)" src="https://github.com/user-attachments/assets/8a7d8ff7-5e9a-4e17-a8b9-dce320fe1b86" />
-
-
-###
-
-<p align="center">$\color{#4e4e4e}{{"Are}}$ $\color{#4e4e4e}{{you}}$ $\color{#4e4e4e}{{following}}$ $\color{#4e4e4e}{{me}}$ $\color{#4e4e4e}{{for}}$ $\color{#4e4e4e}{{a}}$ $\color{#4e4e4e}{{reason?}}$ $\color{#4e4e4e}{{It}}$ $\color{#4e4e4e}{{had}}$ $\color{#4e4e4e}{{better}}$ $\color{#4e4e4e}{{be}}$ $\color{#4e4e4e}{{good..."}}$<p>
+<div data-importer="profile-views" align="center">
+  <img data-importer="profile-views" src="https://visitor-badge.laobi.icu/badge?page_id=A7Xloser.A7Xloser&left_color=black&right_color=black&left_text=%E2%99%A1%20%E3%80%82%20avengers"  />
+</div>
 
 
 
+<p align="center">$\color{#F9E2C2}{{"Are}}$ $\color{#BCA199}{{you}}$ $\color{#A17F87}{{following}}$ $\color{#88617D}{{me}}$ $\color{#8B647D}{{for}}$ $\color{#675374}{{a}}$ $\color{#6D5676}{{reason?}}$ $\color{#685374}{{It}}$ $\color{#5D4A6D}{{had}}$ $\color{#5F4E73}{{better}}$ $\color{#564165}{{be}}$ $\color{#473453}{{good..."}}$<p>
 
 
-###
 
 <p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31wgaxpjvdt2hd5vqkapsle3q43m&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=616161&bar_color_cover=false&mode=dark">
-  </a>
+<img alt="Untitled62_20260913205038GGGG" src="https://github.com/user-attachments/assets/73da5bbf-07b5-4fa8-b10c-c91a2bd56cb7" />
 </p>
-<p align="center">$\color{#4e4e4e}{{Reworking}}$ $\color{#4e4e4e}{{this}}$ $\color{#4e4e4e}{{fully}}$ $\color{#4e4e4e}{{soon}}$ 
+
+
