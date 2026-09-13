@@ -24,4 +24,4 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31wgaxpjvdt2hd5vqkapsle3q43m&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=616161&bar_color_cover=false&mode=dark">
   </a>
 </p>
-
+<p align="center">$\color{#4e4e4e}{{Reworking}}$ $\color{#4e4e4e}{{this}}$ $\color{#4e4e4e}{{fully}}$ $\color{#4e4e4e}{{soon}}$ 
