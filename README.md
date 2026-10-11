@@ -1,5 +1,6 @@
 
 
+
 <div data-importer="profile-views" align="center">
   <img data-importer="profile-views" src="https://visitor-badge.laobi.icu/badge?page_id=A7Xloser.A7Xloser&left_color=black&right_color=black&left_text=%E2%99%A1%20%E3%80%82%20avengers"  />
 </div>
@@ -11,7 +12,7 @@
 
 
 <p align="center">
-<img alt="Untitled62_20261011121623" src="https://github.com/user-attachments/assets/2472cee2-534a-42b7-a0c7-63f5a1ce5063" />
+<img alt="Untitled62_20261011123947" src="https://github.com/user-attachments/assets/07d572e2-ffda-467f-b796-0823a99cd444" />
 </p>
 
 
