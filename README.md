@@ -6,12 +6,12 @@
 
 
 
-<p align="center">$\color{#F9E2C2}{{"Are}}$ $\color{#BCA199}{{you}}$ $\color{#A17F87}{{following}}$ $\color{#88617D}{{me}}$ $\color{#8B647D}{{for}}$ $\color{#675374}{{a}}$ $\color{#6D5676}{{reason?}}$ $\color{#685374}{{It}}$ $\color{#5D4A6D}{{had}}$ $\color{#5F4E73}{{better}}$ $\color{#564165}{{be}}$ $\color{#473453}{{good..."}}$<p>
+<p align="center">$\color{#515151}{{"Anyone}}$ $\color{#515151}{{who}}$ $\color{#515151}{{is}}$ $\color{#515151}{{guilty}}$ $\color{#515151}{{deserves}}$ $\color{#515151}{{to}}$ $\color{#515151}{{die."}}$<p>
 
 
 
 <p align="center">
-<img alt="Untitled62_20260913205038GGGG" src="https://github.com/user-attachments/assets/73da5bbf-07b5-4fa8-b10c-c91a2bd56cb7" />
+<img alt="Untitled62_20261011121623" src="https://github.com/user-attachments/assets/2472cee2-534a-42b7-a0c7-63f5a1ce5063" />
 </p>
 
 
