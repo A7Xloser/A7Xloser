@@ -6,7 +6,7 @@
 
 
 
-<p align="center">$\color{#515151}{{"Anyone}}$ $\color{#515151}{{who}}$ $\color{#515151}{{is}}$ $\color{#515151}{{guilty}}$ $\color{#515151}{{deserves}}$ $\color{#515151}{{to}}$ $\color{#515151}{{die."}}$<p>
+<p align="center">$\color{#515151}{{"Anyone}}$ $\color{#696969}{{who}}$ $\color{#808080}{{is}}$ $\color{#989898}{{guilty}}$ $\color{#adadad}{{deserves}}$ $\color{#bababa}{{to}}$ $\color{#cfcfcf}{{die."}}$<p>
 
 
 
